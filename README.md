@@ -1,6 +1,6 @@
 # Hey there! 👋
 
-I'm Vibe, a Developer based in New Mexico, USA.
+I'm Vibe, a Developer based in Germany.
 
 I code and build whatever I can imagine.
 
