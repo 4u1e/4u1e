@@ -23,9 +23,6 @@ My favorite tools are:
 
 ## Fun Facts
 
-- <img src="https://cdn.discordapp.com/emojis/1510936388063723620.webp?size=32&animated=true" width="18" /> I have 3 cats
 - <img src="https://cdn.discordapp.com/emojis/1510936354299711609.webp?size=32&animated=true" width="18" /> I don't like coffee
-- <img src="https://cdn.discordapp.com/emojis/1510936388063723620.webp?size=32&animated=true" width="18" /> *Dan Da Dan* is my favorite anime
-- <img src="https://cdn.discordapp.com/emojis/1510936354299711609.webp?size=32&animated=true" width="18" /> Hobbies: anime, gym, building things
-
-[![4u1e](https://i.postimg.cc/tgNsCYQ9/7t2b93t.png)](https://www.tiktok.com/@nexar.sys)
+- <img src="https://cdn.discordapp.com/emojis/1510936388063723620.webp?size=32&animated=true" width="18" /> *Chainsaw Man* is my favorite anime
+- <img src="https://cdn.discordapp.com/emojis/1510936354299711609.webp?size=32&animated=true" width="18" /> Hobbies: anime, building things
